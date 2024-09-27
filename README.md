@@ -5,4 +5,4 @@ My background is in multi-lingual communications/journalism, but now I'm transit
 - 🌱 I’m currently undertaking ClimateChangeAI's summer school!
 - 📫 You can reach me via [LinkedIn!](https://www.linkedin.com/in/oliverlawrie/)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: If I get a cat, I will call them Bartholomeow.
+- ⚡ Fun fact: My cat will be called Bartholomeow.
